@@ -1,0 +1,1 @@
+# Strategic_Consulting_in_OneDay_BCG
